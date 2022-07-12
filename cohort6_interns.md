@@ -1,10 +1,10 @@
 
-# Name: Caleb Kibet
-![](https://pbs.twimg.com/profile_images/1131946278621995010/FwrMhyJg_400x400.jpg)
+# Name: Samuel Mwasya
+![](https://media.istockphoto.com/photos/greater-flamingos-standing-in-the-lake-picture-id1200423206?s=612x612)
 
-**University:** Rhodes University
+**University:** Pwani University
 
-**Degree:** PhD Bioinformatics
+**Degree:** BSc Mathematics
 
-**Fun fact:** I love Hiking. 
+**Fun fact:** Swimming but only during summer. 
 
